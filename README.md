@@ -1,2 +1,0 @@
-# bmttnc-hutech--2280600562-
-BUITANDAT_2280600562
